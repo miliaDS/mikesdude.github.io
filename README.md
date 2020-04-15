@@ -1,4 +1,4 @@
 # mikesdude.github.io
- pretty funny joke mate
+ i think i laughed at this one im not sure
  
- innit
+ (image by hydration aiden)
